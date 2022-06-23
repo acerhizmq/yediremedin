@@ -1,1 +1,4 @@
-# yediremedin
+# Hm
+salak gibi kendini yüceltip aptal aptal yalanlarla kendini güçlü gösterme gücüde cabası :D? ha nitro olayına gelirsek pushacım bende o sıra elinde hiç olmadıgı kadar para vardı sadece boktan bir nitroya para vermemek için yalan uydurdum sende yedin soktuğumun salağı 27tl yi aldım işime baktım cano,benim ekibimden kimseye laf edemezsin yerle bir olursun. marinoya istesem vururum urlsi düşer ama o kadar boktan hype ı olmayan full token olan siktir boktan bir sunucuya vurmak sünepeliktir,
+ozinin guardı r4t la vs düşmedi sen ona attın veya sen r4tlandın o guardda sağtık nick change cezalandırması var gerizekalı çocuk seni,para ile olacak birşey değil bu botculuk olayı bilader bilgin varsa sevilirsin ama dilenci olursan suriyeli gibi gelir gidersin haberin ola hadi buraya küçük bi bot bıraktım :QWĞÖÇEPQWKPOEWQKÖOWQmkj
+# KULLANMAYIN KULLANDIRTMAYIN <3
